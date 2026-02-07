@@ -1,4 +1,4 @@
-## 📂 .Amber is here !...
+## 📂 .Amber is here !... ^w^
 
 Hi guys! Welcome to my github. 
 
